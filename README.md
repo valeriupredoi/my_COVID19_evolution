@@ -25,6 +25,7 @@
 - temperature felt lower
 - still very tired, no appetite, headache milder now, muscular pain lower
 - stomach not feeling right still (morning coffee almost immediately pooped out), only food I had was a pretzel towards the middle of the day
+- smell and taste quite normal
 - still very thirsty
 - cough more prominent, not a dry cough, but rather, bringing out flem
 
@@ -38,6 +39,7 @@
 - wet cough and sour throat
 - headache but very mild
 - wet stool, uncontrolable
+- smell and taste starting to diminish
 - not thirsty any longer
 - bizzarrely very low morale, and anger fits
 - managed solid food around 4pm - which immediately put an end to the intestinal unrest
@@ -51,6 +53,7 @@
 - first signs of appetite, no more muscular pain
 - no more headache
 - dry cough when talking, throat almost not at all sour anymore
+- smell and taste at a low
 - much better morale, no more anger fits
 - took propolis
 - towards the middle of the day: an interesting pain-free feeling, almost as if I was high
