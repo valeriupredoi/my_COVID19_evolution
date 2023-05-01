@@ -23,7 +23,7 @@
 
 - had to travel from Vienna back to Reading
 - temperature felt lower
-- still very tired, no appetite, headache milder now
+- still very tired, no appetite, headache milder now, muscular pain lower
 - stomach not feeling right still (morning coffee almost immediately pooped out), only food I had was a pretzel towards the middle of the day
 - still very thirsty
 - cough more prominent, not a dry cough, but rather, bringing out flem
@@ -34,7 +34,7 @@
 
 - slept a lot the previous night: very bad sleep, with a lot of convoluted dreams
 - temperature felt higher than the previous day
-- even more tired than the previous day, still no appetite at all
+- even more tired than the previous day, still no appetite at all, muscular pain back to mid-high levels
 - wet cough and sour throat
 - headache but very mild
 - wet stool, uncontrolable
@@ -48,7 +48,7 @@
 - managed to sleep for 12 hours, much better a sleep than the previous night
 - tempereture feels at its lowest
 - still tired but definitely better than any other day since last Thursday
-- first signs of appetite
+- first signs of appetite, no more muscular pain
 - no more headache
 - dry cough when talking, throat almost not at all sour anymore
 - much better morale, no more anger fits
