@@ -57,3 +57,14 @@
 - much better morale, no more anger fits
 - took propolis
 - towards the middle of the day: an interesting pain-free feeling, almost as if I was high
+- good stamina in the evening, had two full meals for the first time since last Thursday
+
+### Day 6: Tuesday 2 May 2023
+
+- slept for 9 hours, fairly good sleep, still with some heavy dreams
+- tempereature at same levels as yesterday, almost none at all
+- cough a bit more pronounced, throat cough, flem-y
+- no more headache, nor sour throat
+- smell and taste almost non-existent
+- energy levels good, but slightly lower in the morning, seems to be improving towards mid-day
+
