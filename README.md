@@ -67,4 +67,6 @@
 - no more headache, nor sour throat
 - smell and taste almost non-existent
 - energy levels good, but slightly lower in the morning, seems to be improving towards mid-day
-
+- stomach still a bit troubled after each meal, but -
+- I took a nap after lunch (first proper, uninterrupted, smooth sleep since virus kicked in), and stomach
+  and all else feel much much better after
