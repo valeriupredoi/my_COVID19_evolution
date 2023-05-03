@@ -70,3 +70,11 @@
 - stomach still a bit troubled after each meal, but -
 - I took a nap after lunch (first proper, uninterrupted, smooth sleep since virus kicked in), and stomach
   and all else feel much much better after
+
+### Day 7: Wednesday 3 May 2023
+
+- slept very well overnight, probably the best way in 7 days
+- energy levels even better than previous day
+- just a bit of a cough
+- smell and taste returned in decent proportion by evening (enjoyed a kebab!)
+- evening tiredness even less than previous day
