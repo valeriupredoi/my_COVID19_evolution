@@ -78,3 +78,18 @@
 - just a bit of a cough
 - smell and taste returned in decent proportion by evening (enjoyed a kebab!)
 - evening tiredness even less than previous day
+
+### Day 9: Friday 5 May 2023
+
+**Negative COVID19 test!**
+
+- energy levels back to normal
+- feeling healthy
+
+### Day 10 + a few more days
+
+- OK physically, but still eliminating a lot of flem, sleeping a bit longer than usual, and coughing, but that is now diminishing
+
+### Day 13: Monday 8 May 2023
+
+- declaring this case closed
